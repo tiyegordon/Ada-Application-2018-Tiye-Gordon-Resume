@@ -76,13 +76,13 @@ University of South Carolina, Columbia, SC (Mar 2009 – Jul 2015)
 >
 >
 ***
-> >###### TECHNOLOGY 
-* Expert usage of Microsoft Office specializing in Excel and PowerPoint 
-* Familiarity with Google Analytics, HTML, Sublime Text 
+###### TECHNOLOGY 
+> > * Expert usage of Microsoft Office specializing in Excel and PowerPoint  
+> > * Familiarity with Google Analytics, HTML, Sublime Text  
 ***
-> >###### EDUCATION 
-* Master of Business Administration – Marketing & Strategic Planning (University of South Carolina – Columbia, SC)
-* Master of Arts – History and Intersectionality Studies (University of South – Columbia, SC)
-* Bachelor of Arts – Religious Studies (St. Lawrence University – Canton, NY )
+###### EDUCATION 
+> > * Master of Business Administration – Marketing & Strategic Planning (University of South Carolina – Columbia, SC) 
+> > * Master of Arts – History and Intersectionality Studies (University of South – Columbia, SC) 
+> > * Bachelor of Arts – Religious Studies (St. Lawrence University – Canton, NY) 
 
 
