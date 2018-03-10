@@ -1,25 +1,42 @@
-# Tiye A. Gordon
-##### tiyea.gordon@gmail.com 
-##### 803.667.7804 
-Project Manager/ Digital Coordinator
-Results oriented with expreince in digital marketing, project completion and client engagement
-- Able to communicate with clients via presentations and face-to-face and via web meetings
-- Skilled in program development, client relationship and strategic planning
-- Expert in global competitive analysis, segmentation research and institutional benchmarketing
-- Effective in planning events for various industries including project rollouts, financial planning and strategic initiatives
-- PMP in progress (expected date October 2017)
-PROFESSIONAL EXPERIENCE
-Vidii Co, Columbia, SC (Aug 2016 to present)
-Marketing Division – Digital Project Manager
-- Responsible for growing user traction, managing social-media campaigns and identifying opportunities to build new channels /partnerships in
-the digital-media space
-- Developed, monitored, and controlled marketing and project budget and campaign logistics
-- Managed team working on reducing hacking, capturing marketing information and releasing content on marketing apps
-Teen V.O.I.C.E. Inc. /DIG Camp (Jan 2017 – August 2017)
-Program Manager
-- Launching non-profit combining emerging technologies and social innovations, preparing teens to engage with the digital workplace.
-- Executing programs, serving 30 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics) in collaboration
-with Richland County Recreation Commission, Darla Moore School of Business, City of Columbia, and the Columbia Urban League.
+# Tiye A. Gordon, _BA ,MA ,MBA_
+##### Columbia, SC | tiyea.gordon@gmail.com | 803.667.7804 
+>
+>
+>
+### Project Manager/ Digital Coordinator 
+* Results oriented with expreince in digital marketing, project completion and client engagement
+* Able to communicate with clients via presentations and face-to-face and via web meetings
+* Skilled in program development, client relationship and strategic planning
+* Expert in global competitive analysis, segmentation research and institutional benchmarketing
+* Effective in planning events for various industries including project rollouts, financial planning and strategic initiatives
+* _PMP in progress (expected date May 2018)_
+___
+#### TECHNOLOGY START-UP/SOCIAL ENTREPRENUERSHIP EXPERIENCE
+>
+>
+>
+_Digital Project Manager_  
+[Vidii Co.](https://www.vidii.co/), Columbia, SC (Aug 2016 to October 2018) 
+* Responsible for growing user traction, managing social-media campaigns and identifying opportunities to build new channels /partnerships in the digital-media space
+* Developed, monitored, and controlled marketing and project budget and campaign logistics
+* Managed team working on reducing hacking, capturing marketing information and releasing content on marketing apps
+* Drafted and edited logic, sequencing, and creative content for [Bandwagon chatbot](link:https://www.facebook.com/TheBandwagonFanClub/)
+* Liasion between development team and client regarding project expectations, changes, and deliverables
+>
+>
+_Founder/President_  
+<a href="http://www.youtube.com/watch?v=wL6FRL0B-Ig=YOUTUBE_VIDEO_ID_HERE
+" target="_blank"><img src="http://img.youtube.com/vi/YOUTUBE_VIDEO_ID_HERE/0.jpg" 
+alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+
+
+
+[![Teen V.O.I.C.E. Inc.(http://www.youtube.com/watch?v=wL6FRL0B-Ig)](https://www.youtube.com/watch?v=wL6FRL0B-Ig)  
+* Launching non-profit combining emerging technologies and social innovations, preparing teens to engage with the digital workplace  
+* Creator of [DIG Camp](link:http://digcamp.weebly.com/), summer program serving 50 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics) in collaboration with Darla Moore School of Business, City of Columbia, and the Columbia Urban League 
+* Creator of [The #NoFilter Project](link:https://www.youtube.com/watch?v=MV5G8U1DnDk) digital curriculum for teen girls that teaches digital literacy and responsible social media use among teen girls 
+>
+>
 South Carolina Department of Commerce, Columbia, SC (Apr 2016 to Aug 2016)
 Business Strategy Consultant
 - Assessed key competitiveness aspects of the agribusiness cluster in South Carolina.
@@ -44,7 +61,7 @@ leadership and University stakeholders.
 - Received Council for Advancement and Support of Education Southeast District II Grand Award for event implementation celebrating the
 50th Anniversary of Desegregation at the University of South Carolina.
 Technology: Expert usage of Microsoft Office specializing in Excel, PowerPoint and Visio
-Developer experience with Google Analytics, HTML, Sublime Text
+Developer experience with Google Analytics, HTML, Sublime Text>
 Education: Master of Business Administration – Marketing & Strategic Planning (University of South Carolina – Columbia, SC)
 - Master of Arts – History (University of South – Columbia, SC)
 - Bachelor of Arts – Religious Studies (St. Lawrence University – Canton, NY )
