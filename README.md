@@ -21,17 +21,17 @@ _Digital Project Manager_
 * Developed, monitored, and controlled marketing and project budget and campaign logistics
 * Managed team working on reducing hacking, capturing marketing information and releasing content on marketing apps
 * Drafted and edited logic, sequencing, and creative content for [Bandwagon chatbot](link:https://www.facebook.com/TheBandwagonFanClub/)
-* Liasion between development team and client regarding project expectations, changes, and deliverables
+* Liasion between development team and client regarding project expectations, change request, and deliverables
 >
 >
 _Founder/President_  
 <a href="http://www.youtube.com/watch?v=wL6FRL0B-Ig=YOUTUBE_VIDEO_ID_HERE
-" target="_blank"><img src="http://img.youtube.com/vi/YOUTUBE_VIDEO_ID_HERE/0.jpg" 
-alt="IMAGE ALT TEXT HERE" width="240" height="180" border="10" /></a>
+" target="_blank"><img src="https://roniayalla.files.wordpress.com/2015/03/voice-inc-one-pager-final.jpg" 
+alt="Teen V.O.I.C.E Inc." width="240" height="180" border="10" /></a>
 
 
 
-[![Teen V.O.I.C.E. Inc.(http://www.youtube.com/watch?v=wL6FRL0B-Ig)](https://www.youtube.com/watch?v=wL6FRL0B-Ig)  
+
 * Launching non-profit combining emerging technologies and social innovations, preparing teens to engage with the digital workplace  
 * Creator of [DIG Camp](link:http://digcamp.weebly.com/), summer program serving 50 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics) in collaboration with Darla Moore School of Business, City of Columbia, and the Columbia Urban League 
 * Creator of [The #NoFilter Project](link:https://www.youtube.com/watch?v=MV5G8U1DnDk) digital curriculum for teen girls that teaches digital literacy and responsible social media use among teen girls 
