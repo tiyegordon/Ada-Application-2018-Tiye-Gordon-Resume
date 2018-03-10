@@ -82,10 +82,10 @@ University of South Carolina, Columbia, SC (Mar 2009 – Jul 2015)
 ***
  ###### EDUCATION 
 > * Master of Business Administration – _Marketing & Strategic Management_  
-> University of South Carolina, Darla Moore School of Buisness – Columbia, SC 
+> University of South Carolina, Darla Moore School of Buisness (Columbia, SC)  
 > * Master of Arts – _[History and Intersectionality Studies](https://scholarcommons.sc.edu/etd/3636/)_  
-> University of South – Columbia, SC 
+> University of South (Columbia, SC)  
 > * Bachelor of Arts – Religious Studies  
-> St. Lawrence University – Canton, NY  
+> St. Lawrence University (Canton, NY)   
 
 
