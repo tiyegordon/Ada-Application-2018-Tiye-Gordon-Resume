@@ -25,7 +25,7 @@ _Digital Project Manager_
 >
 >
 _Founder/President_  
-Teen V.O.I.C.E Inc
+[Teen V.O.I.C.E Inc](https://www.facebook.com/teenvoiceinc/), Columbia, SC (May 2014 to Present)
 >
 <a href="http://www.youtube.com/watch?v=wL6FRL0B-Ig=YOUTUBE_VIDEO_ID_HERE
 " target="_blank"><img src="https://roniayalla.files.wordpress.com/2015/03/voice-inc-one-pager-final2.jpg" 
