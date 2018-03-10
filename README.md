@@ -35,7 +35,7 @@ ___
 **_Founder/President_**  
 [Teen V.O.I.C.E Inc](https://www.facebook.com/teenvoiceinc/), Columbia, SC (May 2014 to Present)
 >
-<a href="https://youtu.be/wL6FRL0B-Ig?tIG=17=YOUTUBE_VIDEO_ID_HERE
+<a href="https://youtu.be/wL6FRL0B-Ig?t=18=YOUTUBE_VIDEO_ID_HERE
 " target="_blank"><img src="https://roniayalla.files.wordpress.com/2015/03/voice-inc-one-pager-final2.jpg" 
 alt="Teen V.O.I.C.E Inc." width="240" height="180" border="10" /></a> 
 >
