@@ -29,14 +29,14 @@ _Founder/President_
 >
 <a href="http://www.youtube.com/watch?v=wL6FRL0B-Ig=YOUTUBE_VIDEO_ID_HERE
 " target="_blank"><img src="https://roniayalla.files.wordpress.com/2015/03/voice-inc-one-pager-final2.jpg" 
-alt="Teen V.O.I.C.E Inc." width="240" height="180" border="10" /></a>
-
-
-
-
-* Launching non-profit combining emerging technologies and social innovations, preparing teens to engage with the digital workplace  
-* Creator of [DIG Camp](link:http://digcamp.weebly.com/), summer program serving 50 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics) in collaboration with Darla Moore School of Business, City of Columbia, and the Columbia Urban League 
-* Creator of [The #NoFilter Project](link:https://www.youtube.com/watch?v=MV5G8U1DnDk) digital curriculum for teen girls that teaches digital literacy and responsible social media use among teen girls 
+alt="Teen V.O.I.C.E Inc." width="240" height="180" border="10" /></a> 
+>
+* Launched non-profit combining emerging technologies and social innovations, preparing teens to engage with the digital workplace  
+* Creator and organizer of [DIG Camp](link:http://digcamp.weebly.com/), a summer program serving 50 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics) in collaboration with Darla Moore School of Business, City of Columbia, McNair Institute for Entrprenuer and Free Enterprise- USC, Ronald E. McNair Center for Aerospace Innovation and Research, and the Columbia Urban League  
+* Creator of digital curriculum for teen girls that teaches digital literacy and responsible social media use 
+<a href="https://www.youtube.com/watch?v=MV5G8U1DnDk=YOUTUBE_VIDEO_ID_HERE
+" target="_blank"><img src="http://theminorityeye.com/wp-content/uploads/2014/06/nofilter1.jpg" 
+alt="The #NoFilter Project" width="240" height="180" border="10" /></a>   
 >
 >
 South Carolina Department of Commerce, Columbia, SC (Apr 2016 to Aug 2016)
