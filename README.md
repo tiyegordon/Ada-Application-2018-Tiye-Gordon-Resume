@@ -64,7 +64,7 @@ ___
 >
 >
 **_Business Strategy Consultant_**  
-South Carolina Department of Commerce   
+[CIBER](https://sc.edu/study/colleges_schools/moore/academic_departments_and_research/academic_departments/international_business/ciber/index.php)/South Carolina Department of Commerce   
 Columbia, SC (Apr 2016 to Aug 2016)  
 * Assessed key competitiveness aspects of the agribusiness cluster in South Carolina 
 *  Monitored and tracked team project milestones and deliverables pertaining to the development of an export assistance program plan to
