@@ -102,15 +102,15 @@ Columbia, SC (Mar 2009 to Jul 2015)
 > * **Bachelor of Arts** – _Religious Studies_, Honors  
 > St. Lawrence University (Canton, NY)  
 >   * Kappa Theta Honors Society
-Dean's List, Spring 2008  Receipient, 
-Jeffery Campbel Committment to Diversity and Inclusion, 
-2008 Member, Social Justice Committee, 2008    
-Ronald E. McNair Scholar, 2007, 2008   
-Ronald E. MnCair Scholar of the Year Class 
-President, 2009 Class Council, 2008 
-President, Black Student, 2008 
-Vice President, Black Student Union, 2007 
-Varsity Basketball, 2008    
+>   * Dean's List, Spring 2008  Receipient, 
+>   * Jeffery Campbel Committment to Diversity and Inclusion, 2008  
+>   * Member, Social Justice Committee, 2008     
+>   * Ronald E. McNair Scholar, 2007, 2008    
+>   * Ronald E. MnCair Scholar of the Year Class  
+>   * President, 2009 Class Council, 2008  
+>   * President, Black Student, 2008  
+>   * Vice President, Black Student Union, 2007  
+>   * Varsity Basketball, 2008     
 ***
 ###### TRAINING
 > *
