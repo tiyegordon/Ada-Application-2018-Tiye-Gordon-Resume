@@ -28,11 +28,19 @@ Columbia, SC (Aug 2016 to October 2018)
 >
 **_Project Manager, Intern_**  
 [Tradeversity](https://www.tradeversity.com/)  
-Columbia, SC (November 2016 tp April 2016)  
+Columbia, SC (November 2015 tp April 2016)  
 * Led projects and logistics for Amazon product integration into the Tradeversity mobile platform 
 * Expanded brand awareness to additional Universities in South Carolina collegiate network 
 * Implemented Agile/Scrum methodologies to monitor and manage all project work 
 >
+>
+**_Program Coordinator/ Project Administrator_** 
+USC Department of Sociology, Think SMARTe  
+Columbia, SC (September 2015 to April 2016) 
+> Think Sustainable Models for Advancing Research Through Entrepreneurship (SMART-E) is a collaboration between the College of Social Work and Faber Entrepreneurship Center that aims to create a formal mechanism for social scientists to learn about, and engage in, entrepreneurship activities.Our approach is to identify opportunities for faculty and students to commercialize their research and connecting them to the internal/external resources necessary to transform their social innovations into social enterprises. 
+* Responsible for managing and developing programs focused on social entrepreneurship in academia 
+* Conducting research on various business models within the context of social processes and community impact on topics related to social impact and community health   
+> 
 >
 **_Founder/President_**  
 [Teen V.O.I.C.E Inc](https://www.facebook.com/teenvoiceinc/)   
@@ -87,9 +95,17 @@ Columbia, SC (Mar 2009 to Jul 2015)
  ###### EDUCATION 
 > * **Master of Business Administration** – _Marketing & Strategic Management_  
 > University of South Carolina, Darla Moore School of Buisness (Columbia, SC)  
-> * **Master of Arts** – _[History and Intersectionality Studies](https://scholarcommons.sc.edu/etd/3636/)_  
+> * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
 > University of South (Columbia, SC)  
-> * **Bachelor of Arts** – Religious Studies  
+> * **Bachelor of Arts** – _Religious Studies_  
 > St. Lawrence University (Canton, NY)   
-
+***
+ ###### COMMUNITY/VOLUNTEERISM
+> * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC 2018)  
+> * **Assistant Basketbal Coach**, _Girls Varsity_, Ridgeview Highschool, (Columbia, SC, 2014, 2015)   
+> * **Head Basketball Coach**, _Division 3 Boys AAU_, Central Carolina Force, _2014 D3 State Champs_ (Columbia, SC, 2014, 2015)  
+> * **Basketball Coach**,_Youth League ( 5/6; 11/12 year olds)_, Richland Recreation Commission (Columbia, SC, 2014, 2015)  
+> * **Mentor**, STEM Programs, _IT-ology_, (Columbia, SC, 2015)  
+> * **Digital Literacy Mentor**, _Project Castle Classroom_, Sandlapper Elementary (Columbia, SC, 2015)  
+> * **Event and Membership Coordinator**, _701 Center for Contemporary Arts_, (Columbia, SC, 2013, 2014)  
 
