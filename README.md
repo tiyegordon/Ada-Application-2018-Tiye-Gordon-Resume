@@ -113,8 +113,8 @@ Columbia, SC (Mar 2009 to Jul 2015)
 >   * **Vice President**, _Black Student Union_, 2007    
 ***
 ###### TRAINING
-> * Training the Streets Financial Modeling, Darla Moore School of Buisness,(Columbia, SC), 2015    
-> * Event Planning and Meeting Coordinating, University of Tennessee,(Knoxville, TN), 2011   
+> * Training the Streets Financial Modeling, Darla Moore School of Buisness, (Columbia, SC), 2015    
+> * Event Planning and Meeting Coordinating, University of Tennessee, (Knoxville, TN), 2011   
 ***
  ###### COMMUNITY/VOLUNTEERISM
 > * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC), 2018  
