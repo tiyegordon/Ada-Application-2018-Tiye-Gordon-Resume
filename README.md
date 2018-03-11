@@ -109,17 +109,19 @@ Columbia, SC (Mar 2009 to Jul 2015)
 >   * _President_, 2009 Class Council, 2008  
 >   * _President_, Black Student, 2008  
 >   * Varsity Basketball, 2008
->   * _Scholar_, Ronald E. McNair Scholars Program, 2007, 2008  
->   * _Vice President_, Black Student Union, 2007   
+>   * _Scholar_, Ronald E. McNair Scholars Program, 2007, 2008   
+>   * _Vice President_, Black Student Union, 2007    
 ***
 ###### TRAINING
-> *
+> * Training the Streets Financial Modeling, Darla Moore School of Buisness,(Columbia, SC), 2015   
+> * Event Planning and Meeting Coordinating, University of Tennessee,(Knoxville, TN), 2011  
+***
  ###### COMMUNITY/VOLUNTEERISM
-> * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC 2018)  
-> * **Assistant Basketbal Coach**, _Girls Varsity_, Ridgeview Highschool, (Columbia, SC, 2014, 2015)   
-> * **Head Basketball Coach**, _Division 3 Boys AAU_, Central Carolina Force, _2014 D3 State Champs_ (Columbia, SC, 2014, 2015)  
-> * **Basketball Coach**,_Youth League ( 5/6; 11/12 year olds)_, Richland Recreation Commission (Columbia, SC, 2014, 2015)  
-> * **Mentor**, STEM Programs, _IT-ology_, (Columbia, SC, 2015)  
-> * **Digital Literacy Mentor**, _Project Castle Classroom_, Sandlapper Elementary (Columbia, SC, 2015)  
-> * **Event and Membership Coordinator**, _701 Center for Contemporary Arts_, (Columbia, SC, 2013, 2014)  
+> * _Organizer/ Founder_, Columbia Cryptocurrency Meetup, (Columbia, SC), 2018  
+> * _Mentor*_, STEM Youth Programs, IT-ology, (Columbia, SC), 2016   
+> * _Assistant Basketbal Coach_, Girls Varsity, Ridgeview Highschool, (Columbia, SC), 2014, 2015    
+> * _Head Basketball Coach_, Division 3 Boys AAU, Central Carolina Force, _2014 D3 State Champs_ (Columbia, SC), 2014, 2015  
+> * _Basketball Coach_, Youth League ( 5/6; 11/12 year olds) , Richland Recreation Commission (Columbia, SC), 2014, 2015   
+> * _Digital Literacy Mentor_, Project Castle Classroom, Sandlapper Elementary (Columbia, SC), 2015  
+> * _Event and Membership Coordinator_, 701 Center for Contemporary Arts, (Columbia, SC), 2013, 2014   
 
