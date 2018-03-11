@@ -96,21 +96,21 @@ Columbia, SC (Mar 2009 to Jul 2015)
 > * **Master of Business Administration** – _Marketing & Strategic Management_  
 > University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
 >   * National Black MBA Chrysler Case Competition Team 
->   * Vice President, Net Impact 
+>   * _Vice President_, Net Impact 
 > * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
 > University of South (Columbia, SC)  
 > * **Bachelor of Arts** – _Religious Studies_, Honors  
 > St. Lawrence University (Canton, NY)  
->   * Kappa Theta Honors Society
->   * Dean's List, Spring 2008  Receipient, 
->   * Jeffery Campbel Committment to Diversity and Inclusion, 2008  
->   * Member, Social Justice Committee, 2008     
->   * Ronald E. McNair Scholar, 2007, 2008    
->   * Ronald E. MnCair Scholar of the Year Class  
->   * President, 2009 Class Council, 2008  
->   * President, Black Student, 2008  
->   * Vice President, Black Student Union, 2007  
->   * Varsity Basketball, 2008     
+>   * _Member_, Kappa Theta Honors Society in Religious Studies
+>   * Dean's List, Spring 2008 
+>   * _Receipient_, Jeffery Campbel Committment to Diversity and Inclusion, 2008  
+>   * _Member_, Social Justice Committee, 2008      
+>   * _Receipient_, Ronald E. MnCair Scholar of the Year, 2008 
+>   * _President_, 2009 Class Council, 2008  
+>   * _President_, Black Student, 2008  
+>   * Varsity Basketball, 2008
+>   * _Scholar_, Ronald E. McNair Scholars Program, 2007, 2008  
+>   * _Vice President_, Black Student Union, 2007   
 ***
 ###### TRAINING
 > *
