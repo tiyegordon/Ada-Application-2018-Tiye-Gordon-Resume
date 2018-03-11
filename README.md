@@ -94,12 +94,26 @@ Columbia, SC (Mar 2009 to Jul 2015)
 ***
  ###### EDUCATION 
 > * **Master of Business Administration** – _Marketing & Strategic Management_  
-> University of South Carolina, Darla Moore School of Buisness (Columbia, SC)  
+> University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
+>  * National Black MBA Chrysler Case Competition Team
+   * Vice President, Net Impact 
 > * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
 > University of South (Columbia, SC)  
-> * **Bachelor of Arts** – _Religious Studies_  
-> St. Lawrence University (Canton, NY)   
+> * **Bachelor of Arts** – _Religious Studies_, Honors  
+> St. Lawrence University (Canton, NY)  
+>   * Kappa Theta Honors Society  
+    * Dean's List, Spring 2008  
+    * Receipient, Jeffery Campbel Committment to Diversity and Inclusion, 2008   
+    * Member, Social Justice Committee, 2008   
+    * Ronald E. McNair Scholar, 2007, 2008   
+    * Ronald E. MnCair Scholar of the Year Class President, 2008   
+    * President, 2009 Class Council, 2008  
+    * President, Black Student, 2008 
+    * Vice President, Black Student Union, 2007  
+    * Varsity Basketball, 2008    
 ***
+###### TRAINING
+> *
  ###### COMMUNITY/VOLUNTEERISM
 > * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC 2018)  
 > * **Assistant Basketbal Coach**, _Girls Varsity_, Ridgeview Highschool, (Columbia, SC, 2014, 2015)   
