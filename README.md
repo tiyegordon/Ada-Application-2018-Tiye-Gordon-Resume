@@ -20,7 +20,7 @@ ___
 [Vidii Co.](https://www.vidii.co/), Columbia, SC (Aug 2016 to October 2018) 
 * Responsible for growing user traction, managing social-media campaigns, and identifying opportunities to build new channels /partnerships in the digital-media space
 * Developed, monitored, and controlled marketing, project budget, and campaign logistics
-* Managed team working on reducing hacking, capturing marketing information, and releasing content on marketing apps
+* Managed a team of digital growth hackers, capturing marketing information, and releasing content on mobile apps
 * Drafted and edited logic, sequencing, and creative content for [Bandwagon chatbot](link:https://www.facebook.com/TheBandwagonFanClub/)
 * Liasion between development team and client regarding project expectations, change request, and deliverables
 >
