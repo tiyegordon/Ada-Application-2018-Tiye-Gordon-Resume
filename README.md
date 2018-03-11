@@ -88,30 +88,29 @@ Columbia, SC (Mar 2009 to Jul 2015)
 >
 >
 ***
+ ###### EDUCATION 
+ * **Master of Business Administration** – _Marketing & Strategic Management_  
+ University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
+   * National Black MBA Chrysler Case Competition Team 
+   * _Vice President_, Net Impact 
+ * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
+ University of South (Columbia, SC)  
+ * **Bachelor of Arts** – _Religious Studies_, Honors  
+ St. Lawrence University (Canton, NY)  
+   * **Member**, _Kappa Theta Honors Society in Religious Studies_
+   * **Dean's List**, Spring 2008 
+   * **Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
+   * **Member**, _Social Justice Committee_, 2008      
+   * **Recipient**, _Ronald E. MnCair Scholar of the Year_, 2008 
+   * **President**, _2009 Class Council_, 2008  
+   * **President**, _Black Student_, 2008  
+   * **Team Memeber**, _Varsity Women's Basketball_, 2008
+   * **Scholar**, _Ronald E. McNair Scholars Program_, 2007, 2008   
+   * **Vice President**, _Black Student Union_, 2007    
+******
 ###### TECHNOLOGY 
 > * Expert usage of Microsoft Office specializing in Excel and PowerPoint  
 > * Familiarity with Google Analytics, HTML, Sublime Text  
-***
- ###### EDUCATION 
-> * **Master of Business Administration** – _Marketing & Strategic Management_  
-> University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
->   * National Black MBA Chrysler Case Competition Team 
->   * _Vice President_, Net Impact 
-> * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
-> University of South (Columbia, SC)  
-> * **Bachelor of Arts** – _Religious Studies_, Honors  
-> St. Lawrence University (Canton, NY)  
->   * **Member**, _Kappa Theta Honors Society in Religious Studies_
->   * **Dean's List**, Spring 2008 
->   * **Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
->   * **Member**, _Social Justice Committee_, 2008      
->   * **Recipient**, _Ronald E. MnCair Scholar of the Year_, 2008 
->   * **President**, _2009 Class Council_, 2008  
->   * **President**, _Black Student_, 2008  
->   * **Team Memeber**, _Varsity Women's Basketball_, 2008
->   * **Scholar**, _Ronald E. McNair Scholars Program_, 2007, 2008   
->   * **Vice President**, _Black Student Union_, 2007    
-***
 ###### TRAINING
 > * Training the Streets Financial Modeling, Darla Moore School of Buisness, (Columbia, SC), 2015    
 > * Event Planning and Meeting Coordinating, University of Tennessee, (Knoxville, TN), 2011   
