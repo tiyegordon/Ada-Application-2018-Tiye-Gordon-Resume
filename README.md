@@ -4,11 +4,11 @@
 >
 >
 ### Project Manager/ Digital Coordinator 
-* Results oriented with expreince in digital marketing, project completion and client engagement
-* Able to communicate with clients via presentations and face-to-face and via web meetings
-* Skilled in program development, client relationship and strategic planning
-* Expert in global competitive analysis, segmentation research and institutional benchmarketing
-* Effective in planning events for various industries including project rollouts, financial planning and strategic initiatives
+* Results oriented with expreince in digital marketing, project completion, and client engagement
+* Able to communicate with clients via presentations, face-to-face and via web meetings
+* Skilled in program development, client relationship, and strategic planning
+* Expert in global competitive analysis, segmentation research, and institutional benchmarketing
+* Effective in planning events for various industries including project rollouts, financial planning, and strategic initiatives
 * _PMP in progress (expected date May 2018)_
 ___
 #### TECHNOLOGY START-UP/SOCIAL ENTREPRENUERSHIP EXPERIENCE
@@ -18,9 +18,9 @@ ___
 >
 **_Digital Project Manager_**  
 [Vidii Co.](https://www.vidii.co/), Columbia, SC (Aug 2016 to October 2018) 
-* Responsible for growing user traction, managing social-media campaigns and identifying opportunities to build new channels /partnerships in the digital-media space
+* Responsible for growing user traction, managing social-media campaigns, and identifying opportunities to build new channels /partnerships in the digital-media space
 * Developed, monitored, and controlled marketing and project budget and campaign logistics
-* Managed team working on reducing hacking, capturing marketing information and releasing content on marketing apps
+* Managed team working on reducing hacking, capturing marketing information, and releasing content on marketing apps
 * Drafted and edited logic, sequencing, and creative content for [Bandwagon chatbot](link:https://www.facebook.com/TheBandwagonFanClub/)
 * Liasion between development team and client regarding project expectations, change request, and deliverables
 >
@@ -28,7 +28,7 @@ ___
 **_Project Manager, Intern_**  
 [Tradeversity](https://www.tradeversity.com/), Columbia, SC (November 2016 tp April 2016)
 * Led projects and logistics for Amazon product integration into the Tradeversity mobile platform 
-* Expanded brand awareness to additional Universities in SC collegiate network 
+* Expanded brand awareness to additional Universities in South Carolina collegiate network 
 * Implemented Agile/Scrum methodologies to monitor and manage all project work 
 >
 >
@@ -40,7 +40,7 @@ ___
 alt="Teen V.O.I.C.E Inc." width="240" height="180" border="10" /></a> 
 >
 * Launched non-profit combining emerging technologies and social innovations, preparing teens to engage with the digital workplace  
-* Creator and organizer of [DIG Camp](link:http://digcamp.weebly.com/), a summer program serving 50 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics) in collaboration with Darla Moore School of Business, City of Columbia, McNair Institute for Entrprenuer and Free Enterprise- USC, Ronald E. McNair Center for Aerospace Innovation and Research, and the Columbia Urban League  
+* Creator and organizer of [DIG Camp](link:http://digcamp.weebly.com/), a summer program serving 50 teens in the areas of innovation and STEM (Science, Technology, Engineering, Mathematics);a collaboration with Darla Moore School of Business, City of Columbia, McNair Institute for Entrprenuer and Free Enterprise- USC, Ronald E. McNair Center for Aerospace Innovation and Research, and the Columbia Urban League  
 * Creator of The #NoFilter Project program and digital curriculum (collaboration with [Black Girls Write](http://www.blackgirlswrite.com/)) for teen girls that teaches digital literacy and responsible social media use  
 <a href="https://www.youtube.com/watch?v=MV5G8U1DnDk=YOUTUBE_VIDEO_ID_HERE
 " target="_blank"><img src="http://theminorityeye.com/wp-content/uploads/2014/06/nofilter1.jpg" 
