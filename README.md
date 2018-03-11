@@ -99,9 +99,9 @@ Columbia, SC (Mar 2009 to Jul 2015)
  St. Lawrence University (Canton, NY)  
    * **Member**, _Kappa Theta Honors Society in Religious Studies_
    * **Dean's List**, Spring 2008 
-   * **Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
+   * **Award Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
    * **Member**, _Social Justice Committee_, 2008      
-   * **Recipient**, _Ronald E. MnCair Scholar of the Year_, 2008 
+   * **Award Recipient**, _Ronald E. MnCair Scholar of the Year_, 2008 
    * **President**, _2009 Class Council_, 2008  
    * **President**, _Black Student_, 2008  
    * **Team Memeber**, _Varsity Women's Basketball_, 2008
