@@ -17,7 +17,8 @@ ___
 >
 >
 **_Digital Project Manager_**  
-[Vidii Co.](https://www.vidii.co/), Columbia, SC (Aug 2016 to October 2018) 
+[Vidii Co.](https://www.vidii.co/)  
+Columbia, SC (Aug 2016 to October 2018)  
 * Responsible for growing user traction, managing social-media campaigns, and identifying opportunities to build new channels /partnerships in the digital-media space
 * Developed, monitored, and controlled marketing, project budget, and campaign logistics
 * Managed a team of digital growth hackers, capturing marketing information, and releasing content on mobile apps
@@ -26,14 +27,16 @@ ___
 >
 >
 **_Project Manager, Intern_**  
-[Tradeversity](https://www.tradeversity.com/), Columbia, SC (November 2016 tp April 2016)
+[Tradeversity](https://www.tradeversity.com/)  
+Columbia, SC (November 2016 tp April 2016)  
 * Led projects and logistics for Amazon product integration into the Tradeversity mobile platform 
 * Expanded brand awareness to additional Universities in South Carolina collegiate network 
 * Implemented Agile/Scrum methodologies to monitor and manage all project work 
 >
 >
 **_Founder/President_**  
-[Teen V.O.I.C.E Inc](https://www.facebook.com/teenvoiceinc/), Columbia, SC (May 2014 to Present)
+[Teen V.O.I.C.E Inc](https://www.facebook.com/teenvoiceinc/)   
+Columbia, SC (May 2014 to Present)  
 >
 <a href="https://youtu.be/wL6FRL0B-Ig?t=18=YOUTUBE_VIDEO_ID_HERE
 " target="_blank"><img src="https://roniayalla.files.wordpress.com/2015/03/voice-inc-one-pager-final2.jpg" 
@@ -54,7 +57,8 @@ ___
 >
 >
 **_Business Strategy Consultant_**  
-South Carolina Department of Commerce, Columbia, SC (Apr 2016 to Aug 2016)
+South Carolina Department of Commerce   
+Columbia, SC (Apr 2016 to Aug 2016)  
 * Assessed key competitiveness aspects of the agribusiness cluster in South Carolina 
 *  Monitored and tracked team project milestones and deliverables pertaining to the development of an export assistance program plan to
 sustain and scale SC agribusiness expansion goals across state government agencies 
@@ -65,7 +69,8 @@ sustain and scale SC agribusiness expansion goals across state government agenci
 >
 >
 **_Communications Assistant_**  
-University of South Carolina, Columbia, SC (Mar 2009 – Jul 2015) 
+University of South Carolina  
+Columbia, SC (Mar 2009 to Jul 2015)    
 * Served as internal and external communications liaison for senior management 
 * Contributed to the execution of marketing and public relations initiatives including online campaigns, [content creation for offical Commemoration website](http://www.sc.edu/desegregation/), and editorials 
 * Ensured team assigned duties and deliverables were completed with quality, timely, and accurately in nature to meet requirements of project leadership and University stakeholders
