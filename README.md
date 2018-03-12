@@ -104,7 +104,7 @@ St. Lawrence University (Canton, NY)
    * **Dean's List**, Spring 2008 
    * **Award Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
    * **Member**, _Social Justice Committee_, 2008      
-   * **Award Recipient**, _Ronald E. MnCair Scholar of the Year_, 2008 
+   * **Award Recipient**, _Ronald E. McNair Scholar of the Year_, 2008 
    * **President**, _2009 Class Council_, 2008  
    * **President**, _Black Student_, 2008  
    * **Team Memeber**, _Varsity Women's Basketball_, 2008
