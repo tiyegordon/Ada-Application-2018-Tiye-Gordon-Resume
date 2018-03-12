@@ -19,7 +19,7 @@ ___
 **_Digital Project Manager_**  
 [Vidii Co.](https://www.vidii.co/)  
 Columbia, SC (Aug 2016 to October 2018)  
-* Responsible for growing user traction, managing social-media campaigns, and identifying opportunities to build new channels /partnerships in the digital-media space
+* Responsible for growing user traction, managing social-media campaigns, and identifying opportunities to build new channels/partnerships in the digital-media space
 * Developed, monitored, and controlled marketing, project budget, and campaign logistics
 * Managed a team of digital growth hackers, capturing marketing information, and releasing content on mobile apps
 * Drafted and edited logic, sequencing, and creative content for [Bandwagon chatbot](link:https://www.facebook.com/TheBandwagonFanClub/)
@@ -27,7 +27,7 @@ Columbia, SC (Aug 2016 to October 2018)
 >
 >
 **_Project Manager, Intern_**  
-[Tradeversity](https://www.tradeversity.com/)  
+[Tradeversity](https://www.tradeversity.com/)   
 Columbia, SC (November 2015 tp April 2016)  
 * Led projects and logistics for Amazon product integration into the Tradeversity mobile platform 
 * Expanded brand awareness to additional Universities in South Carolina collegiate network 
@@ -37,7 +37,7 @@ Columbia, SC (November 2015 tp April 2016)
 **_Program Coordinator/ Project Administrator_** 
 USC Department of Sociology, Think SMARTe  
 Columbia, SC (September 2015 to April 2016) 
-> Think Sustainable Models for Advancing Research Through Entrepreneurship (SMART-E) is a collaboration between the College of Social Work and Faber Entrepreneurship Center that aims to create a formal mechanism for social scientists to learn about, and engage in, entrepreneurship activities.Our approach is to identify opportunities for faculty and students to commercialize their research and connecting them to the internal/external resources necessary to transform their social innovations into social enterprises. 
+> Think Sustainable Models for Advancing Research Through Entrepreneurship (SMART-E) is a collaboration between the College of Social Work and Faber Entrepreneurship Center that aims to create a formal mechanism for social scientists to learn about, and engage in, entrepreneurship activities. Our approach is to identify opportunities for faculty and students to commercialize their research and connecting them to the internal/external resources necessary to transform their social innovations into social enterprises. 
 * Responsible for managing and developing programs focused on social entrepreneurship in academia 
 * Conducting research on various business models within the context of social processes and community impact on topics related to social impact and community health   
 > 
@@ -68,7 +68,7 @@ ___
 Columbia, SC (Apr 2016 to Aug 2016)  
 * Assessed key competitiveness aspects of the agribusiness cluster in South Carolina 
 *  Monitored and tracked team project milestones and deliverables pertaining to the development of an export assistance program plan to
-sustain and scale SC agribusiness expansion goals across state government agencies 
+sustain and scale South Carolina agribusiness expansion goals across state government agencies 
 *  Identified high potential export markets and developed a go-to-market strategy plan for a $10 million new market opportunity as a means of fueling state economic development 
 *  Awarded South Carolina Competitiveness Fellow and recognized high achievement in strategy and policy analysis 
 *  Served as bilateral trade delegate to Vietnam 
