@@ -30,7 +30,7 @@ Columbia, SC (Aug 2016 to October 2018)
 >
 **_Project Manager, Intern_**  
 [Tradeversity](https://www.tradeversity.com/)   
-Columbia, SC (November 2015 tp April 2016)  
+Columbia, SC (November 2015 to April 2016)  
 * Led projects and logistics for Amazon product integration into the Tradeversity mobile platform 
 * Expanded brand awareness to additional Universities in South Carolina collegiate network 
 * Implemented Agile/Scrum methodologies to monitor and manage all project work 
