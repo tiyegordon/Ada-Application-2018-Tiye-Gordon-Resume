@@ -129,7 +129,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
  * **Mentor**, _STEM Youth Programs_, IT-ology, (Columbia, SC), 2016   
  * **Assistant Coach**, _Girls Varsity Basketball_, Ridgeview Highschool, (Columbia, SC), 2014, 2015    
  * [**Head Coach**](http://www.sc.edu/uofsc/posts/2014/06_tiye_gordon_hoops.php#.WqXL0GrwaUk), _Division 3 Boys Amateur Athletic Union Basketball_, Central Carolina Force, _2014 D3 State Champs_, (Columbia, SC), 2014, 2015  
- * **Basketball Coach**, _Youth Recreational League (5/6; 11/12 year olds)_, Richland County Recreation Commission, (Columbia, SC), 2014, 2015   
- * **Digital Literacy Mentor**, _Project Castle Classroom_, Sandlapper Elementary, (Columbia, SC), 2015  
+ * **Digital Literacy Mentor**, _Project Castle Classroom_, Sandlapper Elementary, (Columbia, SC), 2015 
+ * **Basketball Coach**, _Youth Recreational League (5/6; 11/12 year olds)_, Richland County Recreation Commission, (Columbia, SC), 2014, 2015  
  * **Event and Membership Coordinator**, _701 Center for Contemporary Art_, (Columbia, SC), 2013, 2014   
 
