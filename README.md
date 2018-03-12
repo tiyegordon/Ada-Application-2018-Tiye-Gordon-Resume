@@ -36,7 +36,7 @@ Columbia, SC (November 2015 to April 2016)
 * Implemented Agile/Scrum methodologies to monitor and manage all project work 
 >
 >
-**_Program Coordinator/ Project Administrator_** 
+**_Program Coordinator/ Project Administrator, Graduate Assistant_** 
 USC Department of Sociology, Think SMARTe  
 Columbia, SC (September 2015 to April 2016) 
 > Think Sustainable Models for Advancing Research Through Entrepreneurship (SMART-E) is a collaboration between the College of Social Work and Faber Entrepreneurship Center that aims to create a formal mechanism for social scientists to learn about, and engage in, entrepreneurship activities. Our approach is to identify opportunities for faculty and students to commercialize their research and connecting them to the internal/external resources necessary to transform their social innovations into social enterprises. 
@@ -77,7 +77,7 @@ sustain and scale South Carolina agribusiness expansion goals across state gover
 >
 >
 >
-**_Communications Assistant_**  
+**_Communications/Graduate Assistant_**  
 University of South Carolina  
 Columbia, SC (Mar 2009 to Jul 2015)    
 * Served as internal and external communications liaison for senior management 
