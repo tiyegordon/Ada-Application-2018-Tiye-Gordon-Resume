@@ -13,7 +13,7 @@
 * Effective in planning events for various industries including project rollouts, financial planning, and strategic initiatives
 * _PMP in progress (expected date May 2018)_
 ___
-#### TECHNOLOGY START-UP/SOCIAL ENTREPRENUERSHIP EXPERIENCE
+#### TECHNOLOGY START-UP/SOCIAL ENTREPRENEURSHIP EXPERIENCE
 ___
 >
 >
