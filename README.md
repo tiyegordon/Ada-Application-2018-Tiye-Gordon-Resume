@@ -125,7 +125,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
 ***
  ###### COMMUNITY/VOLUNTEERISM
 ***
- * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC), 2018  
+ * **Organizer/ Founder**, _Columbia Blockchain and Cryptocurrency Meetup_, (Columbia, SC), 2018  
  * **Mentor**, _STEM Youth Programs_, IT-ology, (Columbia, SC), 2016   
  * **Assistant Coach**, _Girls Varsity Basketball_, Ridgeview Highschool, (Columbia, SC), 2014, 2015    
  * [**Head Coach**](http://www.sc.edu/uofsc/posts/2014/06_tiye_gordon_hoops.php#.WqXL0GrwaUk), _Division 3 Boys Amateur Athletic Union Basketball_, Central Carolina Force, _2014 D3 State Champs_, (Columbia, SC), 2014, 2015  
