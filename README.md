@@ -101,7 +101,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
  University of South Carolina, College of Arts and Sciences (Columbia, SC)  
 >
 * **Bachelor of Arts** – _Religious Studies_, Honors  
-St. Lawrence University (Canton, NY)  
+[St. Lawrence University (Canton, NY)](http://www.northcountrysymposium.com/magazine/summer08/community.html)  
    * **Member**, _Kappa Theta Honors Society in Religious Studies_
    * **Dean's List**, Spring 2008 
    * **Award Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
