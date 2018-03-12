@@ -96,7 +96,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
    * **Vice President**, [_Net Impact_ ](https://www.netimpact.org/)
 >
 * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
- University of South Carolina (Columbia, SC)  
+ University of South Carolina, College of Arts and Sciences (Columbia, SC)  
 >
 * **Bachelor of Arts** – _Religious Studies_, Honors  
 St. Lawrence University (Canton, NY)  
