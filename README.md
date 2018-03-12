@@ -94,10 +94,12 @@ Columbia, SC (Mar 2009 to Jul 2015)
  University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
    * **Team Member**, _National Black MBA Chrysler Case Competition_
    * **Vice President**, [_Net Impact_ ](https://www.netimpact.org/)
- * **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
+>
+* **[Master of Arts](https://scholarcommons.sc.edu/etd/3636/)** – _History and Intersectionality Studies_   
  University of South (Columbia, SC)  
- * **Bachelor of Arts** – _Religious Studies_, Honors  
- St. Lawrence University (Canton, NY)  
+>
+* **Bachelor of Arts** – _Religious Studies_, Honors  
+St. Lawrence University (Canton, NY)  
    * **Member**, _Kappa Theta Honors Society in Religious Studies_
    * **Dean's List**, Spring 2008 
    * **Award Recipient**, _Jeffery Campbel Committment to Diversity and Inclusion_, 2008  
