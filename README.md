@@ -89,6 +89,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
 >
 ***
  ###### EDUCATION 
+*** 
  * **Master of Business Administration** – _Marketing & Strategic Management_  
  University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
    * **Team Member**, _National Black MBA Chrysler Case Competition_
@@ -107,20 +108,24 @@ Columbia, SC (Mar 2009 to Jul 2015)
    * **Team Memeber**, _Varsity Women's Basketball_, 2008
    * **Scholar**, _Ronald E. McNair Scholars Program_, 2007, 2008   
    * **Vice President**, _Black Student Union_, 2007    
-******
-###### TECHNOLOGY 
-> * Expert usage of Microsoft Office specializing in Excel and PowerPoint  
-> * Familiarity with Google Analytics, HTML, Sublime Text  
+***
+###### TECHNOLOGY
+***
+ * Expert usage of Microsoft Office specializing in Excel and PowerPoint  
+ * Familiarity with Google Analytics, HTML, Sublime Text  
+***
 ###### TRAINING
-> * Training the Streets Financial Modeling, Darla Moore School of Buisness, (Columbia, SC), 2015    
-> * Event Planning and Meeting Coordinating, University of Tennessee, (Knoxville, TN), 2011   
+***
+ * Training the Streets Financial Modeling, Darla Moore School of Buisness, (Columbia, SC), 2015    
+ * Event Planning and Meeting Coordinating, University of Tennessee, (Knoxville, TN), 2011   
 ***
  ###### COMMUNITY/VOLUNTEERISM
-> * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC), 2018  
-> * **Mentor**, _STEM Youth Programs_, IT-ology, (Columbia, SC), 2016   
-> * **Assistant Coach**, _Girls Varsity Basketball_, Ridgeview Highschool, (Columbia, SC), 2014, 2015    
-> * **Head Coach**, _Division 3 Boys Amateur Athletic Union Basketball_, Central Carolina Force, _2014 D3 State Champs_ (Columbia, SC), 2014, 2015  
-> * **Basketball Coach**, _Youth Recreational League (5/6; 11/12 year olds)_, Richland County Recreation Commission (Columbia, SC), 2014, 2015   
-> * **Digital Literacy Mentor**, _Project Castle Classroom_, Sandlapper Elementary (Columbia, SC), 2015  
-> * **Event and Membership Coordinator**, _701 Center for Contemporary Arts_, (Columbia, SC), 2013, 2014   
+***
+ * **Organizer/ Founder**, _Columbia Cryptocurrency Meetup_, (Columbia, SC), 2018  
+ * **Mentor**, _STEM Youth Programs_, IT-ology, (Columbia, SC), 2016   
+ * **Assistant Coach**, _Girls Varsity Basketball_, Ridgeview Highschool, (Columbia, SC), 2014, 2015    
+ * **Head Coach**, _Division 3 Boys Amateur Athletic Union Basketball_, Central Carolina Force, _2014 D3 State Champs_ (Columbia, SC), 2014, 2015  
+ * **Basketball Coach**, _Youth Recreational League (5/6; 11/12 year olds)_, Richland County Recreation Commission (Columbia, SC), 2014, 2015   
+ * **Digital Literacy Mentor**, _Project Castle Classroom_, Sandlapper Elementary (Columbia, SC), 2015  
+ * **Event and Membership Coordinator**, _701 Center for Contemporary Arts_, (Columbia, SC), 2013, 2014   
 
