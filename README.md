@@ -5,7 +5,7 @@
 >
 >
 >
-### Project Manager/ Digital Coordinator 
+### Project Manager/ Digital Coordinator/ Researcher
 * Results oriented with expreince in digital marketing, project completion, and client engagement
 * Able to communicate with clients via presentations, face-to-face, and via web meetings
 * Skilled in program development, client relationship, and strategic planning
