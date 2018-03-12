@@ -84,7 +84,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
 * Contributed to the execution of marketing and public relations initiatives including online campaigns, [content creation for offical Commemoration website](http://www.sc.edu/desegregation/), and editorials 
 * Ensured team assigned duties and deliverables were completed timely, accurately, and with quality in order to meet requirements of project leadership and University stakeholders
 * Managed a research team of 5 graduate assistants
-* Received Council for Advancement and Support of Education Southeast District II Grand Award for event implementation celebrating the
+* Recipient of the Council for Advancement and Support of Education Southeast District II Grand Award for event implementation celebrating the
 50th Anniversary of Desegregation at the University of South Carolina (group award) 
 >
 >
