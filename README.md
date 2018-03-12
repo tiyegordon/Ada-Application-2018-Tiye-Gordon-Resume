@@ -13,7 +13,7 @@
 * Effective in planning events for various industries including project rollouts, financial planning, and strategic initiatives
 * _PMP in progress (expected date May 2018)_
 ___
-#### TECHNOLOGY START-UP/SOCIAL ENTREPRENEURSHIP EXPERIENCE
+#### TECHNOLOGY START-UP/ SOCIAL ENTREPRENEURSHIP EXPERIENCE
 ___
 >
 >
@@ -44,7 +44,7 @@ Columbia, SC (September 2015 to April 2016)
 * Conducting research on various business models within the context of social processes and community impact on topics related to social impact and community health   
 > 
 >
-**_Founder/President_**  
+**_Founder/ President_**  
 [Teen V.O.I.C.E Inc](https://www.facebook.com/teenvoiceinc/)   
 Columbia, SC (May 2014 to Present)  
 >
@@ -66,7 +66,7 @@ ___
 >
 >
 **_Business Strategy Consultant_**  
-[CIBER](https://sc.edu/study/colleges_schools/moore/academic_departments_and_research/academic_departments/international_business/ciber/index.php)/South Carolina Department of Commerce   
+[CIBER](https://sc.edu/study/colleges_schools/moore/academic_departments_and_research/academic_departments/international_business/ciber/index.php)/ South Carolina Department of Commerce   
 Columbia, SC (Apr 2016 to Aug 2016)  
 * Assessed key competitiveness aspects of the agribusiness cluster in South Carolina 
 *  Monitored and tracked team project milestones and deliverables pertaining to the development of an export assistance program plan to
@@ -77,7 +77,7 @@ sustain and scale South Carolina agribusiness expansion goals across state gover
 >
 >
 >
-**_Communications/Graduate Assistant_**  
+**_Communications/ Graduate Assistant_**  
 University of South Carolina  
 Columbia, SC (Mar 2009 to Jul 2015)    
 * Served as internal and external communications liaison for senior management 
