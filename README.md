@@ -91,7 +91,7 @@ Columbia, SC (Mar 2009 to Jul 2015)
  ###### EDUCATION 
 *** 
  * **Master of Business Administration** – _Marketing & Strategic Management_  
- University of South Carolina, Darla Moore School of Buisness (Columbia, SC)
+ University of South Carolina, Darla Moore School of Buisness, (Columbia, SC)
    * **Team Member**, _National Black MBA Chrysler Case Competition_
    * **Vice President**, [_Net Impact_ ](https://www.netimpact.org/)
 >
